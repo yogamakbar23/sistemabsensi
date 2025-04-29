@@ -1,0 +1,1 @@
+# 🎥Sistem AbsensiKlik tautan di bawah ini untuk menonton video lengkapnya di YouTube:👉 [Tonton di YouTube](https://youtube.com/shorts/s3gvOnCPx4c?si=wIXTPYiEE4XhLVKW)Jangan lupa Like, Comment, dan Subscribe jika videonya bermanfaat! 👍
